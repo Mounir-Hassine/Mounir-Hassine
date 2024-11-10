@@ -1,4 +1,5 @@
-![flat,750x,075,f-pad,750x1000,f8f8f8](https://github.com/user-attachments/assets/6e542e32-d258-4414-9129-9336147801a2)
+![desktop-wallpaper-software-thumbnail](https://github.com/user-attachments/assets/99c8f0d1-36b8-49eb-bb5d-90aef5208b40)
+
 
 ## Hi there 👋
 
